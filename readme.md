@@ -38,7 +38,7 @@
 17. [Bowser's Galaxy Reactor](https://www.youtube.com/watch?v=EsyjY9lDVk8)*: encouraging music
 18. [Theme of SMG2](https://www.youtube.com/watch?v=xsyPHkeyz6o)*: finale
  
-### SUPER MARIO 3D WORLD ORIGINAL SOUNDTRACK
+### SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK
 1. [Super Bell Hill](https://www.youtube.com/watch?v=wFxzHKx1BYQ)*: jazzy, upbeat music
 2. [Chain-Link Charge](https://www.youtube.com/watch?v=pkizz-EzmPA)*: jazzy music
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
