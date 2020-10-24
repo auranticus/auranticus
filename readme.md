@@ -27,13 +27,13 @@
 6. Cosmic Cove Galaxy
 7. Freezy Flake Galaxy
 8. Star Ball Rolling
-9. [Cloudy Court Galaxy](https://www.youtube.com/watch?v=C6d4lxw9FYM)*: a better version of *Gusty Garden Galaxy*.
+9. [Cloudy Court Galaxy](https://www.youtube.com/watch?v=C6d4lxw9FYM)*: has the same energy as *Gusty Garden Galaxy*
 10. Flipsville Galaxy
 11. [Starshine Beach Galaxy](https://www.youtube.com/watch?v=YFeCJyXmUSA)*: beach theme
 12. [Starshine Beach Galaxy \~Underwater\~](https://www.youtube.com/watch?v=0407ob6VtJo)*: beach theme, relaxing version
 13. You Got a Grand Star!
 14. [Throwback Galaxy](https://www.youtube.com/watch?v=fVt61oE5BfE)*: fun music
-15. [Cosmic Clones \~Fast\~](https://www.youtube.com/watch?v=fiPYVJ_KC0o)*: tense music, faster & high-pitched version of *Cosmic Comet* in Super Mario Galaxy.
+15. [Cosmic Clones \~Fast\~](https://www.youtube.com/watch?v=fiPYVJ_KC0o)*: tense music, faster & high-pitched version of *Cosmic Comet* in Super Mario Galaxy
 16. [Speed Run](https://www.youtube.com/watch?v=MMMyAX-wesA)*: tense music
 17. [Bowser's Galaxy Reactor](https://www.youtube.com/watch?v=EsyjY9lDVk8)*: encouraging music
 18. [Theme of SMG2](https://www.youtube.com/watch?v=xsyPHkeyz6o)*: finale
@@ -42,18 +42,18 @@
 1. [Super Bell Hill](https://www.youtube.com/watch?v=wFxzHKx1BYQ)*: jazzy, upbeat music
 2. [Chain-Link Charge](https://www.youtube.com/watch?v=pkizz-EzmPA)*: jazzy music
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
-4. [Sunshine Seaside](https://www.youtube.com/watch?v=9k-XrIGobsA)*: beach theme, energetic-relaxing hybrid
-5. [The Credit Rolls (short version)](https://www.youtube.com/watch?v=OPAQA_P_RQY&t=1)*: stop at 1:26.
-6. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale
- 
+4. [Sunshine Seaside](https://www.youtube.com/watch?v=9k-XrIGobsA)*: beach theme, upbeat at the first half of the song & relaxing for the rest
+5. [The Credit Rolls (short version)](https://www.youtube.com/watch?v=OPAQA_P_RQY&t=1)*: stop at 1:26
+6. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
+
 ### SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK
 <img src="https://i.imgur.com/VDAKSAT.jpg" width="531" height="450"/>
 
-SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics.
+SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics
 1. [Fossil Falls](https://www.youtube.com/watch?v=UP92BOlrfoU)*: energetic music
 2. [Lake Lamode](https://www.youtube.com/watch?v=QUoFtd55Pag)*: water theme, relaxing music
 3. [New Donk City](https://www.youtube.com/watch?v=RytKaaKPCrE)*: jazzy, energetic music
-4. [Band Performance](https://www.youtube.com/watch?v=rOw2DNpNoCo)*: jazzy, energetic music. Remix of Super Mario Bros. theme.
+4. [Band Performance](https://www.youtube.com/watch?v=rOw2DNpNoCo)*: jazzy, energetic music. Remix of [*Super Mario Bros. theme*](https://www.youtube.com/watch?v=NTa6Xbzfq1U)
 5. [Poolside Rest](https://www.youtube.com/watch?v=vu1CwpqEt8c)*: piano, relaxing music
 6. [Jump Up, Super Star (NDC edition)](https://www.youtube.com/watch?v=Jg5JRoy8xbM)*: remix of *Jump Up, Super Star*
 7. [Shiveria Town](https://www.youtube.com/watch?v=rtDg6wvRptc)*: winter theme, fun music
