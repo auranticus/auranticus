@@ -35,7 +35,7 @@
 14. [Throwback Galaxy](https://www.youtube.com/watch?v=fVt61oE5BfE)*: fun music
 15. [Cosmic Clones \~Fast\~](https://www.youtube.com/watch?v=fiPYVJ_KC0o)*: tense music, faster & high-pitched version of *Cosmic Comet* in Super Mario Galaxy
 16. [Speed Run](https://www.youtube.com/watch?v=MMMyAX-wesA)*: tense music
-17. [Bowser's Galaxy Reactor](https://www.youtube.com/watch?v=EsyjY9lDVk8)*: encouraging music
+17. [Bowser's Galaxy Generator](https://www.youtube.com/watch?v=EsyjY9lDVk8)*: encouraging music
 18. [Theme of SMG2](https://www.youtube.com/watch?v=xsyPHkeyz6o)*: finale
  
 ### SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK
