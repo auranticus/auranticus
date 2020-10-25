@@ -43,7 +43,7 @@
 2. [Chain-Link Charge](https://www.youtube.com/watch?v=pkizz-EzmPA)*: jazzy music
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
 4. [Sunshine Seaside](https://www.youtube.com/watch?v=9k-XrIGobsA)*: beach theme, upbeat at the first half of the song & relaxing for the rest
-5. [The Credit Rolls (short version)](https://www.youtube.com/watch?v=OPAQA_P_RQY&t=1)*: stop at 1:26
+5. [The Credit Rolls (short version)](https://soundcloud.com/auranticus/super-mario-3d-world-the-credits-roll-short-version)*: finale
 6. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
 
 ### SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK
