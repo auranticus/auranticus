@@ -5,6 +5,15 @@
 -->
 
 \* denotes higher listening priority
+
+## Table of contents
+* [SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version](#super-mario-galaxy-original-sound-track-platinum-version)
+* [SUPER MARIO GALAXY 2 ORIGINAL SOUND TRACK](#super-mario-galaxy-2-original-sound-track)
+* [SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK](#super-mario-3d-world-original-sound-track)
+* [MARIO KART 8 ORIGINAL SOUND TRACK](#mario-kart-8-original-sound-track)
+* [SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK](#super-mario-odyssey-original-sound-track)
+* [Animal Crossing: New Horizon](#animal-crossing-new-horizon)
+* [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack)
  
 ### SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version
 <img src="https://i.imgur.com/j8O56Qd.jpg" width="450" height="450"/>
@@ -76,7 +85,8 @@
 ### SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK
 <img src="https://i.imgur.com/VDAKSAT.jpg" width="531" height="450"/>
 
-SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics
+SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics  
+MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE
 1. [Fossil Falls](https://www.youtube.com/watch?v=UP92BOlrfoU)*: energetic music
 2. [Lake Lamode](https://www.youtube.com/watch?v=QUoFtd55Pag)*: water theme, relaxing music
 3. [New Donk City](https://www.youtube.com/watch?v=RytKaaKPCrE)*: jazzy, energetic music
@@ -93,3 +103,11 @@ SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: th
 <img src="https://i.imgur.com/7VmwJSR.jpg" width="450" height="450"/>
 
 Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets/animal-crossing-new-horizons-ost-selection).
+
+### THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK
+<img src="https://i.imgur.com/fD2oB9g.jpg" width="450" height="450"/>
+
+1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*  
+MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE
+2. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*  
+MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE
