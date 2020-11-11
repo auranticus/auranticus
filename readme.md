@@ -16,7 +16,7 @@
 * [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack) (MV included)
  
 ### SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version
-<img src="https://i.imgur.com/j8O56Qd.jpg" width="450" height="450"/>
+<img src="https://i.imgur.com/j8O56Qd.jpg" width="350" height="350"/>
 
 1. [Enter the Galaxy](https://www.youtube.com/watch?v=dBhlbDxWJv8)*: encouraging music
 2. [Egg Planet](https://www.youtube.com/watch?v=uvXQhEB2bYk)*: energetic music
@@ -28,6 +28,8 @@
 8. [Beach Bowl Galaxy - Undersea](https://www.youtube.com/watch?v=sqAhTUOwEN0)*: beach theme, relaxing music
  
 ### SUPER MARIO GALAXY 2 ORIGINAL SOUND TRACK
+<img src="https://i.imgur.com/pYu3BZl.jpg" width="350" height="350"/>
+
 1. [Overture](https://www.youtube.com/watch?v=u9oRXhtotuc)
 2. [Sky Station Galaxy](https://www.youtube.com/watch?v=WTht2pC-9AA)*: energetic, let's-do-it music
 3. [Yoshi Star Galaxy](https://www.youtube.com/watch?v=dJSrra_RrnE)*: fun music
@@ -52,6 +54,8 @@
 2. [Cosmic Clones \~Fast\~](https://www.youtube.com/watch?v=fiPYVJ_KC0o)*: tense music, faster & high-pitched version of *Cosmic Comet* in Super Mario Galaxy
 
 ### SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK
+<img src="https://i.imgur.com/ZMdaT8o.png" width="350" height="350"/>
+
 1. [Super Bell Hill](https://www.youtube.com/watch?v=wFxzHKx1BYQ)*: jazzy, upbeat music
 2. [Chain-Link Charge](https://www.youtube.com/watch?v=pkizz-EzmPA)*: jazzy music
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
@@ -62,7 +66,7 @@
 8. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
 
 ### [MARIO KART 8 ORIGINAL SOUND TRACK](https://soundcloud.com/auranticus/sets/mario-kart-8-original-sound)
-<img src="https://i.imgur.com/8FwQDMx.jpg" width="450" height="450"/>
+<img src="https://i.imgur.com/8FwQDMx.jpg" width="350" height="350"/>
 
 [Playlist here](https://soundcloud.com/auranticus/sets/mario-kart-8-original-sound)
 1. Mario Kart 8*: energetic music
@@ -86,7 +90,7 @@
 19. Super Star*
 
 ### SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK
-<img src="https://i.imgur.com/VDAKSAT.jpg" width="531" height="450"/>
+<img src="https://i.imgur.com/VDAKSAT.jpg" width="413" height="350"/>
 
 SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics  
 MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE (34M views)
@@ -103,12 +107,12 @@ MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE (34M vie
 11. [Crazy Cap](https://www.youtube.com/watch?v=LtWHcvF3H64)*: shopping-like music
 
 ### Animal Crossing: New Horizon
-<img src="https://i.imgur.com/7VmwJSR.jpg" width="450" height="450"/>
+<img src="https://i.imgur.com/7VmwJSR.jpg" width="350" height="350"/>
 
-Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets/animal-crossing-new-horizons-ost-selection).
+Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets/animal-crossing-new-horizons-ost-selection). Mostly relaxing music.
 
 ### THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK
-<img src="https://i.imgur.com/fD2oB9g.jpg" width="450" height="450"/>
+<img src="https://i.imgur.com/fD2oB9g.jpg" width="350" height="350"/>
 
 1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*  
 MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
