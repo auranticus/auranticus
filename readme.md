@@ -11,9 +11,9 @@
 * [SUPER MARIO GALAXY 2 ORIGINAL SOUND TRACK](#super-mario-galaxy-2-original-sound-track)
 * [SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK](#super-mario-3d-world-original-sound-track)
 * [MARIO KART 8 ORIGINAL SOUND TRACK](#mario-kart-8-original-sound-track)
-* [SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK](#super-mario-odyssey-original-sound-track)
+* [SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK](#super-mario-odyssey-original-sound-track) (MV included)
 * [Animal Crossing: New Horizon](#animal-crossing-new-horizon)
-* [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack)
+* [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack) (MV included)
  
 ### SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version
 <img src="https://i.imgur.com/j8O56Qd.jpg" width="450" height="450"/>
@@ -48,7 +48,7 @@
 19. [Theme of SMG2](https://www.youtube.com/watch?v=xsyPHkeyz6o)*: finale
 
 **Bonus:**
-1. [Supermassive Galaxy](https://www.youtube.com/watch?v=sHfXjpNZnyI)*
+1. [Supermassive Galaxy](https://www.youtube.com/watch?v=sHfXjpNZnyI)*: fun music
 2. [Cosmic Clones \~Fast\~](https://www.youtube.com/watch?v=fiPYVJ_KC0o)*: tense music, faster & high-pitched version of *Cosmic Comet* in Super Mario Galaxy
 
 ### SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK
@@ -57,11 +57,14 @@
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
 4. [Sunshine Seaside](https://www.youtube.com/watch?v=9k-XrIGobsA)*: beach theme, upbeat at the first half of the song & relaxing for the rest
 5. [The Credit Rolls (short version)](https://soundcloud.com/auranticus/super-mario-3d-world-the-credits-roll-short-version)*: finale
-6. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
+6. [Block Land](https://www.youtube.com/watch?v=kJ0Z9cWEc4k)*: energetic music
+7. [Champion's Road](https://www.youtube.com/watch?v=T-xjejirRi8)*: encouraging music, remix of *Gusty Garden Galaxy*
+8. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
 
 ### [MARIO KART 8 ORIGINAL SOUND TRACK](https://soundcloud.com/auranticus/sets/mario-kart-8-original-sound)
 <img src="https://i.imgur.com/8FwQDMx.jpg" width="450" height="450"/>
 
+[Playlist here](https://soundcloud.com/auranticus/sets/mario-kart-8-original-sound)
 1. Mario Kart 8*: energetic music
 2. Mario Kart Stadium*: energetic music
 3. Water Park*: water theme, just like *Sunshine Seaside*: upbeat at the first half of the song & relaxing for the rest
@@ -86,7 +89,7 @@
 <img src="https://i.imgur.com/VDAKSAT.jpg" width="531" height="450"/>
 
 SPECIAL: [Jump Up, Super Star](https://www.youtube.com/watch?v=SspiHZdHefg)*: the first time a Super Mario song has lyrics  
-MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE
+MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE (34M views)
 1. [Fossil Falls](https://www.youtube.com/watch?v=UP92BOlrfoU)*: energetic music
 2. [Lake Lamode](https://www.youtube.com/watch?v=QUoFtd55Pag)*: water theme, relaxing music
 3. [New Donk City](https://www.youtube.com/watch?v=RytKaaKPCrE)*: jazzy, energetic music
@@ -108,6 +111,6 @@ Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets
 <img src="https://i.imgur.com/fD2oB9g.jpg" width="450" height="450"/>
 
 1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*  
-MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE
+MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
 2. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*  
-MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE
+MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE (21.78M views)
