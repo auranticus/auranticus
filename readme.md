@@ -115,6 +115,7 @@ MV/Trailer (short version): https://www.youtube.com/watch?v=wGQHQc_3ycE (34M vie
 9. [Bubblaine Underwater](https://www.youtube.com/watch?v=NEAePkmUoOE)*: beach theme, relaxing music
 10. [Peach's Castle](https://www.youtube.com/watch?v=Jl-LLcd23eY)*: relaxing music
 11. [Crazy Cap](https://www.youtube.com/watch?v=LtWHcvF3H64)*: shopping-like music
+12. [Staff Roll](https://www.youtube.com/watch?v=7V_Rr5Yz1C8)*: finale
 
 ### Animal Crossing: New Horizon
 <img src="https://i.imgur.com/7VmwJSR.jpg" width="350" height="350"/>
