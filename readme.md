@@ -6,6 +6,8 @@
 
 \* denotes higher listening priority
 
+Always use the earphones/headphones when listening to music for best experience.
+
 <hr>
 
 ## Table of contents
