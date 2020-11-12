@@ -18,7 +18,7 @@
 * [Animal Crossing: New Horizon](#animal-crossing-new-horizon)
 * [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack) (MV included)
 
-### [Lyrical music](#lyrical-music)
+### [Lyrical music](#lyrical-music) from various sources
 
 <hr>
 
