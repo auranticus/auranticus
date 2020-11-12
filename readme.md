@@ -9,7 +9,7 @@
 <hr>
 
 ## Table of contents
-### [Nintendo music](#nintendo-music) (mostly non-lyrical)
+### 1. [Nintendo music](#nintendo-music) (mostly non-lyrical)
 * [SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version](#super-mario-galaxy-original-sound-track-platinum-version)
 * [SUPER MARIO GALAXY 2 ORIGINAL SOUND TRACK](#super-mario-galaxy-2-original-sound-track)
 * [SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK](#super-mario-3d-world-original-sound-track)
@@ -18,7 +18,7 @@
 * [Animal Crossing: New Horizon](#animal-crossing-new-horizon)
 * [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack) (MV included)
 
-### [Lyrical music](#lyrical-music) from various sources
+### 2. [Lyrical music](#lyrical-music) from various sources
 
 <hr>
 
