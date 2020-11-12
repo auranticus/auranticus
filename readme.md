@@ -6,7 +6,10 @@
 
 \* denotes higher listening priority
 
+<hr>
+
 ## Table of contents
+### [Nintendo music](#nintendo-music) (mostly non-lyrical)
 * [SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version](#super-mario-galaxy-original-sound-track-platinum-version)
 * [SUPER MARIO GALAXY 2 ORIGINAL SOUND TRACK](#super-mario-galaxy-2-original-sound-track)
 * [SUPER MARIO 3D WORLD ORIGINAL SOUND TRACK](#super-mario-3d-world-original-sound-track)
@@ -14,7 +17,12 @@
 * [SUPER MARIO ODYSSEY ORIGINAL SOUND TRACK](#super-mario-odyssey-original-sound-track) (MV included)
 * [Animal Crossing: New Horizon](#animal-crossing-new-horizon)
 * [THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK](#the-legend-of-zelda-breath-of-the-wild-original-soundtrack) (MV included)
- 
+
+### [Lyrical music](#lyrical-music)
+
+<hr>
+
+## Nintendo music
 ### SUPER MARIO GALAXY ORIGINAL SOUND TRACK Platinum Version
 <img src="https://i.imgur.com/j8O56Qd.jpg" width="350" height="350"/>
 
@@ -118,3 +126,13 @@ Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets
 MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
 2. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*  
 MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE (21.78M views)
+
+<hr>
+
+## Lyrical music
+1. [Verge](https://www.youtube.com/watch?v=nYCURBSSyXw) - Owl City ft. Aloe Blacc
+2. [Letter](https://www.youtube.com/watch?v=vD42ZRdVvpg) - SHE'S
+3. [Better Together](https://www.youtube.com/watch?v=MIVCsN27wpk) - Ross Lynch. From Disney Channel's *Austin & Ally*
+4. [Come Home, Perry](https://www.youtube.com/watch?v=ZylSidJ9eC8) - Phineas and Candace. From Disney Channel's *Phineas and Ferb*
+5. [Turn Up The Music](https://www.youtube.com/watch?v=ej2-QV0yvEw) - Bridgit Mendler. From Disney Channel's *Lemonade Mouth*
+6. [Somebody](https://www.youtube.com/watch?v=YJ5fRzTJvS4) - Bridgit Mendler. From Disney Channel's *Lemonade Mouth*
