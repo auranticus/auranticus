@@ -135,7 +135,7 @@ MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
 7. [Reunion: Daruk](https://www.youtube.com/watch?v=oAFb2bAuH8w)*: epic & emotional music
 8. [Hyrule Castle](https://www.youtube.com/watch?v=3QYWpZ662i4)*: epic music
 9. [Epilogue](https://www.youtube.com/watch?v=05iWG29me7M)*: epic music
-10. [Mini-Game: Bird-Man Research Study](https://www.youtube.com/watch?v=WUQIin9TBxA)*: the only upbeat music in the game
+10. [Mini-Game: Bird-Man Research Study](https://www.youtube.com/watch?v=WUQIin9TBxA)*: upbeat music
 11. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*: relaxing, epic, emotional, intense and encouraging music  
 MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE (21.78M views). Watching is recommended for best experience.
 
