@@ -125,10 +125,19 @@ Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets
 ### THE LEGEND OF ZELDA: BREATH OF THE WILD ORIGINAL SOUNDTRACK
 <img src="https://i.imgur.com/fD2oB9g.jpg" width="350" height="350"/>
 
-1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*  
+1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*: relaxing and epic music  
 MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
-2. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*  
-MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE (21.78M views)
+2. [Battle (Field): Original Soundtrack ver.](https://www.youtube.com/watch?v=PCtIbz92s4s)*: this is actually a dynamic song depending on the situation in-game
+3. [Riding (Day)](https://www.youtube.com/watch?v=ta3DtQ0AbHY)*: relaxing music
+4. [Stables](https://www.youtube.com/watch?v=25sa9R3G2cw)
+5. [Riding (Night)](https://www.youtube.com/watch?v=jRLwaXTTEsY)*: relaxing music
+6. [Reunion: Revali](https://www.youtube.com/watch?v=asFFb4GxIvw)*: emotional music
+7. [Reunion: Daruk](https://www.youtube.com/watch?v=oAFb2bAuH8w)*: epic & emotional music
+8. [Hyrule Castle](https://www.youtube.com/watch?v=3QYWpZ662i4)*: epic music
+9. [Epilogue](https://www.youtube.com/watch?v=05iWG29me7M)*: epic music
+10. [Mini-Game: Bird-Man Research Study](https://www.youtube.com/watch?v=WUQIin9TBxA)*: the only upbeat music in the game
+11. [Nintendo Switch Presentation 2017 Trailer BGM (Bonus Track)](https://www.youtube.com/watch?v=V8RkqQ8fQs4)*: relaxing, epic, emotional, intense and encouraging music  
+MV/Trailer: https://www.youtube.com/watch?v=zw47_q9wbBE (21.78M views). Watching is recommended for best experience.
 
 <hr>
 
