@@ -70,7 +70,7 @@ Always use the earphones/headphones when listening to music for best experience.
 2. [Chain-Link Charge](https://www.youtube.com/watch?v=pkizz-EzmPA)*: jazzy music
 3. [Snowball Park](https://www.youtube.com/watch?v=8wR6cHwoZtM)*: winter theme, relaxing music
 4. [Sunshine Seaside](https://www.youtube.com/watch?v=9k-XrIGobsA)*: beach theme, upbeat at the first half of the song & relaxing for the rest
-5. [The Credit Rolls (short version)](https://soundcloud.com/auranticus/super-mario-3d-world-the-credits-roll-short-version)*: finale
+5. [The Credit Rolls (short version)](https://soundcloud.com/auranticus/super-mario-3d-world-the-credits-roll-short-ver)*: finale
 6. [Block Land](https://www.youtube.com/watch?v=kJ0Z9cWEc4k)*: energetic music
 7. [Champion's Road](https://www.youtube.com/watch?v=T-xjejirRi8)*: encouraging music, remix of *Gusty Garden Galaxy*
 8. [Theme of Super Mario 3D World](https://www.youtube.com/watch?v=w1WQCjhj0nw)*: finale, the same as *Super Bell Hill* but with ending
