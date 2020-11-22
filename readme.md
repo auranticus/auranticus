@@ -127,7 +127,12 @@ Check out [the playlist on my Soundcloud](https://soundcloud.com/auranticus/sets
 
 1. [Main Theme](https://www.youtube.com/watch?v=LiTsXcrxZfg)*: relaxing and epic music  
 MV/Trailer: https://www.youtube.com/watch?v=1rPxiXXxftE (16.72M views)
-2. [Battle (Field): Original Soundtrack ver.](https://www.youtube.com/watch?v=PCtIbz92s4s)*: this is actually a dynamic song depending on the situation in-game
+2. [Battle (Field): Original Soundtrack ver.](https://www.youtube.com/watch?v=PCtIbz92s4s)*: epic & tense music. This is actually a dynamic song depending on the situation in-game  
+   Extended version with various pitch:
+   * [key 0](https://soundcloud.com/auranticus/battle-field-extended-key-0-the-legend-of-zelda-breath-of-the-wild)
+   * [key 1](https://soundcloud.com/auranticus/battle-field-extended-key-1-the-legend-of-zelda-breath-of-the-wild)
+   * [key 2](https://soundcloud.com/auranticus/battle-field-extended-key-2-the-legend-of-zelda-breath-of-the-wild)
+
 3. [Riding (Day)](https://www.youtube.com/watch?v=ta3DtQ0AbHY)*: relaxing music
 4. [Stables](https://www.youtube.com/watch?v=25sa9R3G2cw)
 5. [Riding (Night)](https://www.youtube.com/watch?v=jRLwaXTTEsY)*: relaxing music
